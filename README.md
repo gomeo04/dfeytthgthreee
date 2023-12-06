@@ -2,7 +2,6 @@ Woods was one under after 14 holes but double-bogeyed the 15th after his wayward
 
 "I was rusty, I didn't have my feels," Woods told the Golf Channel.
 
-"I kind of hung through there, and I did not finish off my round when I needed to. Consequently, it kind of went sideways at the end."
 
 Americans Brian Harman and Tony Finau are tied for the lead on five under in the limited-field event, with England's Matt Fitzpatrick three shots behind.
 
