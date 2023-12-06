@@ -1,31 +1,23 @@
-Woods was one under after 14 holes but double-bogeyed the 15th after his wayward drive found a bush and he sits 18th in the 20-player field at Albany.
+Sign up for notifications to the latest Insight features via the BBC Sport app and find the most recent in the series.
 
-"I was rusty, I didn't have my feels," Woods told the Golf Channel.
+The mourners, dressed in black, cloaked in silence, hear it before they see it.
 
+At first, the noise is far off. But that distant commotion is getting closer, clearer and louder.
 
-Americans Brian Harman and Tony Finau are tied for the lead on five under in the limited-field event, with England's Matt Fitzpatrick three shots behind.
+It is the rumble of a heavy diesel engine, mixed with the lighter sound of happy shouts and laughter.
 
-European Ryder Cup players Justin Rose and Sepp Straka are on level par with Viktor Hovland a stroke further back.
+From the cemetery, they watch as an open-backed lorry rolls round the corner, loaded with fresh-faced young men and festooned with red and green ribbons.
 
-Woods said on Tuesday that caddying for his son Charlie at a 54-hole tournament earlier in November showed him he was ready to return to competitive golf.
+On board are County Mayo's all-conquering Gaelic football team. They are on their way back from another epic victory, having clinched the 1951 All-Ireland title in front of 78,000 people in Dublin's cavernous Croke Park.
 
-"I'm a little bit sore, that's for sure," Woods added after the round.
+It is their second consecutive win in the season's biggest game and a successful defence of the revered Sam Maguire Cup.
 
-"We've got some stuff to do tonight to get ready for tomorrow. And then we head back into the gym and get after it tomorrow, and hopefully post a better number."
+But, some things are even more important.
 
-Woods had fusion surgery on a bone in his ankle to address post-traumatic arthritis following the 2021 car crash that kept him out of golf for nearly 14 monthsandroid
-Chaudhary, 50, has been at the tunnel site for the past 11 days. He is staying with men who know his son and is sleeping in barracks made for the labourers.
+Especially in 1950s Ireland, a place of deep belief and strong tradition.
 
-Two years ago, he lost his eldest son in a construction accident in Mumbai. He says he cannot face the grief of losing another son.
+A funeral demands the team fall silent, stop and pay their respects. But, too caught up in their celebrations, Mayo don't. The lorry motors on, the party continues and a sacrilege is committed.
 
-"I pray to God... please don't take this son away from me. All I want is that my son should be out. This is my prayer. This is my last wish."
+The priest at the head of the funeral procession fixes the players with a stare and narrows his eyes.
 
-A landslide near Silkyara, a remote village at the foothills of the Himalayas, collapsed a portion of the tunnel two weeks ago, trapping the workers. The rescue has been delayed by a drilling machine breaking down.
-
-Chaudhary, who goes by only one name, is one of several family members who have travelled here.
-
-Chanchal Singh Bisht is from a neighbouring village. His cousin, Pushkar Singh, 24, is also stuck in the collapsed tunnel.
-
-Nervous when he first arrived at the site, Chanchal had no idea what to expect. When he was finally able to speak with Pushkar via walkie-talkie, he felt relieved.
-
-"He said, 'I am ok, you can go home. I will come home, I am safe in here, I have what I need in here.'"
+"Damnation be upon every one of you," he says.
