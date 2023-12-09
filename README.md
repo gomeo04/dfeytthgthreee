@@ -4,7 +4,9 @@ The mourners, dressed in black, cloaked in silence, hear it before they see it.
 
 At first, the noise is far off. But that distant commotion is getting closer, clearer and louder.
 
-It is the rumble of a heavy diesel engine, mixed with the lighter sound of happy shouts and laughter.
+It is the rumble of a heavy diesel engine, mixed with the lighter sound of happy shouts and laughter. Hamilton did not directly reference Toto Wolff in his remarks, but he was also referring to the allegations against his team principal, who he had praised in an answer to an earlier question.
+
+
 
 From the cemetery, they watch as an open-backed lorry rolls round the corner, loaded with fresh-faced young men and festooned with red and green ribbons.
 
