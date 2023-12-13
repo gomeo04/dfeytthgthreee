@@ -1,25 +1,9 @@
-Sign up for notifications to the latest Insight features via the BBC Sport app and find the most recent in the series.
+England let a dominant position slip as they fell to a four-wicket defeat by West Indies in the opening game of the T20 series in Bridgetown.
 
-The mourners, dressed in black, cloaked in silence, hear it before they see it.
+Captain Jos Buttler and Phil Salt took the tourists to 77-0 at the end of the powerplay and that became 112-2 at the halfway stage before England collapsed in the second half of the innings to be bowled out for 171.
 
-At first, the noise is far off. But that distant commotion is getting closer, clearer and louder.
+Andre Russell, making his first West Indies appearance since November 2021, was the pick of the bowlers, taking 3-19, while Romario Shepherd also impressed with figures of 2-22.
 
-It is the rumble of a heavy diesel engine, mixed with the lighter sound of happy shouts and laughter. Hamilton did not directly reference Toto Wolff in his remarks, but he was also referring to the allegations against his team principal, who he had praised in an answer to an earlier question.
+The Windies also made a flying start to their innings before being pegged back, with England leg-spinner Adil Rashid taking his 100th T20 international wicket in his 100th match.
 
-
-
-From the cemetery, they watch as an open-backed lorry rolls round the corner, loaded with fresh-faced young men and festooned with red and green ribbons.
-
-On board are County Mayo's all-conquering Gaelic football team. They are on their way back from another epic victory, having clinched the 1951 All-Ireland title in front of 78,000 people in Dublin's cavernous Croke Park.
-
-It is their second consecutive win in the season's biggest game and a successful defence of the revered Sam Maguire Cup.
-
-But, some things are even more important.
-
-Especially in 1950s Ireland, a place of deep belief and strong tradition.
-
-A funeral demands the team fall silent, stop and pay their respects. But, too caught up in their celebrations, Mayo don't. The lorry motors on, the party continues and a sacrilege is committed.
-
-The priest at the head of the funeral procession fixes the players with a stare and narrows his eyes.
-
-"Damnation be upon every one of you," he says.
+After a brief delay for rain, Rehan Ahmed ramped up the pressure on the hosts with two wickets in two balls, only for West Indies to hit back again through the experienced pair of captain Rovman Powell and Russell.
