@@ -1,4 +1,3 @@
-England let a dominant position slip as they fell to a four-wicket defeat by West Indies in the opening game of the T20 series in Bridgetown.
 
 Captain Jos Buttler and Phil Salt took the tourists to 77-0 at the end of the powerplay and that became 112-2 at the halfway stage before England collapsed in the second half of the innings to be bowled out for 171.
 
