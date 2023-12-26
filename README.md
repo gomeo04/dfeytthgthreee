@@ -16,7 +16,6 @@ Paul Heckingbottom is set to be sacked as Sheffield United manager within the ne
 
 Appointed permanent manager in November 2021, Heckingbottom guided United to the top flight with a second-place Championship finish last season.
 
-Former manager Chris Wilder is among the leading contenders to take over.
 
 Following defeat at Burnley, Heckingbottom criticised the club for making "financial rather than football decisions" by selling key players in the summer following promotion.
 
