@@ -7,7 +7,15 @@ The Windies also made a flying start to their innings before being pegged back, 
 
 After a brief delay for rain, Rehan Ahmed ramped up the pressure on the hosts with two wickets in two balls, only for West Indies to hit back again through the experienced pair of captain Rovman Powell and Russell.
 https://testnet.sentry.lcd.injective.network:443In a derelict hunting camp in the Baffin Islands, Northern Canada, photographers Cristina Mittermeier and Paul Nicklen watched in horror as a polar bear took what were likely its last steps.
+🚨 THE TIME HAS COME!
 
+⚡️ Announcing $100,000 Quest: NOW LIVE! #de_fi
+
+Complete tasks & quizzes, and compete to win up to $100,000! 💰
+
+Sign Up for the Quest NOW! 👉 de.fi/quest
+
+Psss 🤫rumors say that using our product DAILY increases your chance to win BIG! 
 
 
 European eyes are watching this election closely, after 13 years of governments under Mark Rutte. The winner could end up with less than 20% of the national vote and fewer than 30 seats in the 150-seat parliament, unprecedented in Dutch politics.
